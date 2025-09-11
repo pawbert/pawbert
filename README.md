@@ -5,7 +5,7 @@
 <img width="250" height="250" alt="IMG_5172" src="https://github.com/user-attachments/assets/e01b64ae-c909-4237-ad92-19b7d894b83d" />
 
 
-          **miso / cal**    !
+          **miso / sylv**    !
 
 
 **they / them, they / she w friends**
