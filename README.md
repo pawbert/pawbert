@@ -25,7 +25,7 @@
 
 **movies+shows: squid game, fixed, pokémon**
 
-**music: tyler the creator, femtanyl, 4lung (dont support), lapfox, mailpup**
+**animals: dinosaurs, marsupials, primates**
 
 <img width="400" height="32" alt="Untitled2063_20250911143603" src="https://github.com/user-attachments/assets/791c3ac5-acaa-42e0-a41e-2841efec2be7" />
 
