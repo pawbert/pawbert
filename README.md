@@ -21,7 +21,7 @@
 
 **interests**
 
-**youtubers: layze, danny gonzalez, kurtis conner, benoftheweek, ryan trahan, impractical jokers**
+**youtubers: layze, danny gonzalez, kurtis conner, benoftheweek, ryan trahan, impractical jokers, duncanyounot**
 
 **movies+shows: squid game, fixed, pokémon**
 
