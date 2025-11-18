@@ -1,6 +1,5 @@
 ## welcome to my github...
 
-<img width="1920" height="1000" alt="Untitled2169_20251020212601" src="https://github.com/user-attachments/assets/aa7ecdca-dc2f-4e9e-9260-e72d8fc73b9f" />
 
 
 
@@ -14,7 +13,9 @@
 **lesbian**
 
 
-<img width="640" height="55" alt="Untitled2172_20251020234319" src="https://github.com/user-attachments/assets/cffdb231-90c9-43d7-8050-a51b84d03af7" />
+<img width="640" height="49" alt="IMG_6087" src="https://github.com/user-attachments/assets/a2e31738-8e0d-4041-bdff-4c4b7925ef12" />
+
+
 
 
 
@@ -27,7 +28,9 @@
 
 **animals: dinosaurs**
 
-<img width="640" height="55" alt="Untitled2172_20251020234319" src="https://github.com/user-attachments/assets/cb815555-4c22-42d1-9512-5eefbe228c4f" />
+<img width="640" height="49" alt="IMG_6087" src="https://github.com/user-attachments/assets/9c7b48e3-b100-4c25-8dfc-fde11aec057c" />
+
+
 
 
 **no dni**
